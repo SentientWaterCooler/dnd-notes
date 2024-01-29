@@ -1,5 +1,0 @@
-
-
-[[Phandalin (Main)]]
-
-[[Phandalin (Side)]]

@@ -1,1 +1,0 @@
-Themis's God.
