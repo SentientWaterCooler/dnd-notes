@@ -4,3 +4,5 @@ Held by [[Victor Wilhelm Melstrom]]. He wants to break it LUCY I SWEAR TO GOD IF
 
 
 bag holding it covered in Abjuration and Enchantment Runes. The rune for 'Shield' is also on the bag, however it is different/altered in some way
+
+[[Meera Pepper]]'s stick.
