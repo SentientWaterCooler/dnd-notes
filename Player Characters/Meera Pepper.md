@@ -1,5 +1,4 @@
 
-Nicholas Ahnicaster-Pepper Solion
 Half-Elf
 28
 [Monk](http://dnd5e.wikidot.com/monk)  lvl 4
